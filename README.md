@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Lidiyapam
+- 👋 Hi, I’m @Olympia
 - 👀 I’m interested 
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on ...
